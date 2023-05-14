@@ -5,8 +5,7 @@
 Yes, I saw. You were doing well, until everyone died. I just told you! You've killed me! Doomsday device? Ah, now the ball's in Farnsworth's court! Interesting. **No, wait, the other thing: tedious.** *I don't know what you did, Fry, but once again, you screwed up!* Now all the planets are gonna start cracking wise about our mamas.
 
 ### *Mary, as your Mother, I declare y'all are in a 12-piece bucket o' trouble. But I done struck you a deal: Five hours of community service cleanin' up that ol' mess you caused.*
-3
-+6
+
 I guess because my parents keep telling me to be more ladylike. As though! You can see how I lived before I met you. Look, last night was a mistake. Yeah, lots of people did. It's toe-tappingly tragic!
 
 1. There's no part of that sentence I didn't like!
